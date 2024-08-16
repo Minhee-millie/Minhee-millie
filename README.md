@@ -2,7 +2,7 @@
 - 👀 I’m interested in Editing
 - 🌱 I’m currently learning leading project
 - 💞️ I’m looking to collaborate on small group of sales
-- 📫 How to reach me 'singayneum12@gmail.com
+- 📫 How to reach me 'singayneum12@gmail.com'
 - 😄 Pronouns: Minhee
 - ⚡ Fun fact: It is my first time to make a study group
 
